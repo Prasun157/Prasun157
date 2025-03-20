@@ -7,9 +7,7 @@
 -💞️ I’m looking to collaborate on projects that involve Data Analysis, Predictive Modeling, and Open Source Contributions. Let’s create something impactful together!
 
 -📫 How to reach me:
-Email: prasunmaltare157@gmail.com
-
--😄 Pronouns: He/Him
+Email: prasunmaltare@gmail.com
 
 -⚡ Fun fact:  I once coordinated my university’s first TEDx event, and it was a blast!
 
